@@ -1,1 +1,1 @@
-đót như cái củ cặc ae đừng xài
+tool như cái củ cặc ae đừng xài
